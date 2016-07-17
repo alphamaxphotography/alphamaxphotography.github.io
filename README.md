@@ -1,0 +1,2 @@
+# alphamaxphotography.github.io
+Website
